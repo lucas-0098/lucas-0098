@@ -1,1 +1,1 @@
-oi meu nome e lucas , sou estudante de programação
+O impossivel e  só questao de opnião
